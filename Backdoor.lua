@@ -3,7 +3,7 @@
 
 -- [[ Thanks to these guys for helping me ]]
 
--- Feima (my gf)
+-- Feima (my gf, he did the scan sshiitt!! pro coder)
 -- Fake (THIS GUY MAKE THE SHITTIEST UI IN THE WORLD)
 -- Demilishio (Made the Panel)
 -- Herlow (made all the function)
