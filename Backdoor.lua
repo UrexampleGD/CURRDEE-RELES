@@ -1,4 +1,4 @@
---BYDDDY UH WANNA OPEN SRC??? CONTCT THEEEE OWNER:::: curseyaaz
+--BYDDDY UH WANNA OPEN SRC??? CONTCT THEEEE OWNER DISCORD BAHDHR:::: diffrent_.
 --NOOOO ITS OBFUSCATED BAAGAGEYSUWUEHS
 
 -- [[ Thanks to these guys for helping me ]]
